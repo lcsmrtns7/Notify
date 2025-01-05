@@ -66,4 +66,4 @@ NGUYEN Nahla
 https://www.linkedin.com/in/nahla-nguyen-6891b12ba/
 
 MARTINS Lucas
-https://www.linkedin.com/in/lucas-martins-7a3b3b1b
+https://www.linkedin.com/in/lucas-martins-02155b2a8/
